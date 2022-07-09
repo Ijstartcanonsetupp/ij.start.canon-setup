@@ -1,4 +1,5 @@
 ## ij.start.canon setup
+[![Peacocktv.com/tv](get-start.png)](https://sites.google.com/site/ijstartcanonsetupdownloads/ij-start-canon)
 # IJ.START.CANON SETUP || IJ.START.CANNON || IJ.START.CANON
 IJ Canon printer setup can be downloaded via canon.com/ijsetup or ij.start.canon setup page. Canon is the best wireless printer that you can connect to your device and print data smoothly. Canon CD is not the well-suited technique for canon setup installation for longer. So you just need to visit ij.start.canon to download and setup canon printers.
 
